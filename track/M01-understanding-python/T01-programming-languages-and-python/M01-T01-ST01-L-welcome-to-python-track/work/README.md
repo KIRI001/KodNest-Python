@@ -14,7 +14,7 @@ Python is one of the famous language and its easy and current market want pyhton
 
 ## My Career Goal
 
-For long term I am seeing myself as a Indian Foreign Service officer
+For long team I am seeing myself as a Indian Foreign Service officer
 
 ## What I Understood Today
 
